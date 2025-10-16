@@ -1,4 +1,5 @@
 Stop Mapaganda — The Information De-Occupation of Ukraine
+
 Author’s role: Founder & Project Manager of the initiative and website
 
 <img width="1300" height="757" alt="image" src="https://github.com/user-attachments/assets/99113a79-8df3-444a-b454-9ed7b68cb027" />
